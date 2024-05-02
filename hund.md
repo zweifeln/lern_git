@@ -1,1 +1,1 @@
-An der Ampel steht ein Hund. Gegenüber ist ein Eiscafé aber der Hund hat kein Geld dabei und jammert.
+An der Ampel steht ein Hund. An der Ecke gegenüber ist ein Eiscafé aber der Hund hat kein Geld dabei und jammert.
