@@ -1,1 +1,1 @@
-Der Hund sitzt im Eiscafé.
+Der Hund sitzt im Eiscafé um die Ecke.
