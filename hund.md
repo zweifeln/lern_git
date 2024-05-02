@@ -1,1 +1,1 @@
-Der Hund sitzt im Eiscafé aber hat kein Geld dabei.
+An der Ampel steht ein Hund. Gegenüber ist ein Eiscafé aber der Hund hat kein Geld dabei.
