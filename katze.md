@@ -1,3 +1,1 @@
-Flo: Die Katze steht vor dem Supermarkt.
-
-Sie wartet auf das Mittagessen. 
+Die Katze steht vor dem Supermarkt. Die Maus läuft vorbei. Die Maus spielt mit der katze
